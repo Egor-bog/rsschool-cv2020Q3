@@ -1,1 +1,1 @@
-# https://Egor-bog.github.io/Egor/cv
+# https://Egor-bog.github.io/srchool-cv/cv
