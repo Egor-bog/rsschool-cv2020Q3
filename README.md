@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://Egor-bog.github.io/Egor/cv
